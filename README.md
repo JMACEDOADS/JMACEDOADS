@@ -4,7 +4,7 @@
 - 💞️ Procuro estar sempre aprendend
 - 📫  Como chegar até mim: 
 
-Linkedin:
+Linkedin: https://www.linkedin.com/in/jo%C3%A3o-macedo-352513159/
 E-mail: joaovictorramosmacedo77@gmail.com
 
 
